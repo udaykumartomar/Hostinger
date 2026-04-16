@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-<img src="[https://drive.google.com/file/d/17z-Dzz8ZSIASxb9WO6Iv4udLLVHSSR1A/view?usp=sharing](https://couponhost.shop/wp-content/uploads/2026/04/Untitled.png)" />
+<img src="https://couponhost.shop/wp-content/uploads/2026/04/Untitled.png" />
 </p>
 
 <p align="center">
