@@ -37,7 +37,7 @@ This exclusive **Hostinger discount code** helps you save big on shared hosting,
 ✔ Fast, Secure & Reliable  
 
 <p align="center">
-<a href="https://www.hostinger.com/in?REFERRALCODE=HOSTINGEROFF91">
+<a href="https://couponhost.shop/hostinger-coupon-codes/">
 <img src="https://img.shields.io/badge/APPLY%20DEAL%20NOW-FF7A00?style=for-the-badge&logo=firefox&logoColor=white" />
 </a>
 </p>
@@ -53,7 +53,7 @@ This exclusive **Hostinger discount code** helps you save big on shared hosting,
 ✔ Best for Ads & Online Stores  
 
 <p align="center">
-<a href="https://www.hostinger.com/in?REFERRALCODE=HOSTINGEROFF91">
+<a href="https://couponhost.shop/hostinger-coupon-codes/">
 <img src="https://img.shields.io/badge/GET%20CLOUD%20HOSTING-FF7A00?style=for-the-badge" />
 </a>
 </p>
@@ -67,7 +67,7 @@ This exclusive **Hostinger discount code** helps you save big on shared hosting,
 ✔ Full Control for Developers  
 
 <p align="center">
-<a href="https://www.hostinger.com/in?REFERRALCODE=HOSTINGEROFF91">
+<a href="https://couponhost.shop/hostinger-coupon-codes/">
 <img src="https://img.shields.io/badge/GET%20VPS%20PLAN-FF7A00?style=for-the-badge" />
 </a>
 </p>
@@ -81,7 +81,7 @@ This exclusive **Hostinger discount code** helps you save big on shared hosting,
 ✔ Perfect for Beginners  
 
 <p align="center">
-<a href="https://www.hostinger.com/in?REFERRALCODE=HOSTINGEROFF91">
+<a href="https://couponhost.shop/hostinger-coupon-codes/">
 <img src="https://img.shields.io/badge/START%20WEBSITE%20NOW-FF7A00?style=for-the-badge" />
 </a>
 </p>
